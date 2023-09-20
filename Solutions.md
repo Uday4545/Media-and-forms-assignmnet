@@ -1,1 +1,5 @@
-
+![Solutuion1](https://github.com/Uday4545/Media-and-forms-assignmnet/assets/100724584/b44d4a01-8502-4576-8b96-699e5dbcaff6)
+![Solution2](https://github.com/Uday4545/Media-and-forms-assignmnet/assets/100724584/6eb9771f-9c27-4466-abf4-3429248bf9e6)
+![Solution3](https://github.com/Uday4545/Media-and-forms-assignmnet/assets/100724584/6c0e7e6a-aa28-4578-9382-08ba9183f3fe)
+![Solution4](https://github.com/Uday4545/Media-and-forms-assignmnet/assets/100724584/e2e4f746-8833-43ac-a9b0-a190935e4e40)
+![Solution5](https://github.com/Uday4545/Media-and-forms-assignmnet/assets/100724584/e89dbd70-a790-4c9f-bde2-182868827772)
